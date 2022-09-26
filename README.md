@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Pribinkpeter
 - 👀 I’m interested in playingfootball
 - 🌱 I’m currently learning high secondary +2
-- 💞️ I’m looking to collaborate on company 
+- 💞️ I’m looking to collaborate on with you
 - 📫 How to reach me call me
 
 <!---
